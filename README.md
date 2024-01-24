@@ -1,7 +1,6 @@
 fdsfdsfs# Hi there 👋
 adaxxdxAсчсяс
-<!-dsff-fsdsgsger
-**✨ _special_ ✨ repository because itssdada `README.md` (this file) appears on your GitHub profile.efsdfsfrstsegrgsrgsregsdf
+<!-dsff-fsdsgsg itssdada `README.md` (this file) appears on your GitHub profile.efsdfsfrstsegrgsrgsregsdf
 hgfhfhfhyutyududhhhfh
 Here are bfgfgfgfdzgzdgsomenbnbn ideas to get you started:
 
