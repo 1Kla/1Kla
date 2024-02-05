@@ -5,7 +5,8 @@ hgfhfhfhyutyududhhhfh
 Here are bfgfgfgfdzgzdgsomenbnbn ideas to ge
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
-- 🤔 I’m look
+- 🤔 I’m lookghfgsdfdfsaf
+- 
 - 💬 Ask me about .
 - ⚡ Fun fact: ...ыыфывыфвфвыфвф
 -->ty
