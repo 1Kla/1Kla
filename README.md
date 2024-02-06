@@ -6,7 +6,7 @@ Here are bfgfgfgfdzgzdgsomenbnbn ideas to ge
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m lookghfgsdfdfsaf
-- 
+- sWEwqeWQRwrWQ
 - 💬 Ask me about .
 - ⚡ Fun fact: ...ыыфывыфвфвыфвф
 -->ty
